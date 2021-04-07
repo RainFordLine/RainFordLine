@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RainFordLine
+- 👀 I’m interested in programming stuff
+- 🌱 I’m currently learning HTMl and CSS
+- 💞️ I’m looking to collaborate on (NO IDEA YET)
+- 📫 How to reach me https://vk.com/pathetically.aesthetic
